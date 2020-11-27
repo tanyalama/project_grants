@@ -1,0 +1,1 @@
+My NSF PRFB proposal was successfully funded in 2020. However, there are unpublished ideas in the propopsal that I'm not ready to share yet. If you would like to access my proposal please contact me directly at tanya.m.lama@gmail.com
