@@ -4,4 +4,6 @@ We included graduate stipend support for my doctoral dissertation, as well as fu
 The Canada lynx reference genome is a product of the Vertebrate Genomes Project Phase I initiative. 
 
 Find State Wildlife Action Plans here: https://www.fishwildlife.org/afwa-informs/state-wildlife-action-plans
+Puerto Rico SWAP (http://drna.pr.gov/wp-content/uploads/2015/10/PRSWAP-2015.pdf)
+Please note that these are ten year review plans. 2015 was the latest SWAP release
 
